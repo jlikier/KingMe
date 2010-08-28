@@ -1,0 +1,1 @@
+A cutthroat battle with everything from saving damsels in distress to getting the village donkey out of the tree. The first player to take the opponents King wins!
